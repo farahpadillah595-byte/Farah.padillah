@@ -1,2 +1,0 @@
-# Farah.padillah
-cv.website
